@@ -1,6 +1,7 @@
 <p align="center"> 切ねー恋、してますか？ </p>
 
-![image](https://github.com/user-attachments/assets/c8854bab-4bd8-4c64-b9f2-d57f626a21f8)
+![image](https://github.com/user-attachments/assets/0c2b4e38-9936-40e0-aca4-6ab71ff52e39)
+
 
 
 
