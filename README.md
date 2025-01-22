@@ -1,6 +1,7 @@
 <p align="center"> 切ねー恋、してますか？ </p>
 
-![image](https://github.com/user-attachments/assets/4da1a9de-2c90-4a50-9424-cf7a76a56bb4) ![image](https://github.com/user-attachments/assets/4da1a9de-2c90-4a50-9424-cf7a76a56bb4) ![image](https://github.com/user-attachments/assets/4da1a9de-2c90-4a50-9424-cf7a76a56bb4)
+![image](https://github.com/user-attachments/assets/c8854bab-4bd8-4c64-b9f2-d57f626a21f8)
+
 
 
 <p align="center"> 土砂降りの雨が降った </p>
