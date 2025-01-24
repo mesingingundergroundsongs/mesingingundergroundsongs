@@ -4,7 +4,7 @@
 
 <p align="center"> 「　Underground  ๑  CopingLink　」 </p>
 <p align="center"> 𑁍ࠬܓ
-<p align="center"> †༙ 　 ⁺　﹒ wip . ⠀ ⠀ ᭪ ⠀ ˓ </p>
+<p align="center"> †༙ 　 ⁺　﹒(https://rentry.co/mesingingundergroundsongs) . ⠀ ⠀ ᭪ ⠀ ˓ </p>
 
 
 
